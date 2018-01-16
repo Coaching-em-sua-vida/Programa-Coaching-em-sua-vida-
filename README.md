@@ -1,0 +1,2 @@
+# Programa-Coaching-em-sua-vida-
+Este é um auto treinamento de performance e transformação pessoal. São 8 módulos com uma média de 5 aulas cada, contendo técnicas de aperfeiçoamento, informações valiosíssimas e exercícios importantíssimos para ajudar você a construir uma mentalidade de sucesso e prosperidade que lhe ajudará a criar e desenvolver estratégias para alcançar seus tão sonhados objetivos.
